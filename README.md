@@ -1,5 +1,5 @@
-# inattvbox
-inattv box apk uygulamasi super Tv box ve android cep telefonlari icin super (malesef reklamli)
+# iNAT TV BOX android
+inat tv box apk uygulamasi super Tv box ve android cep telefonlari icin super (malesef reklamli)
 
 
 👉 İnat BOX Apk İndir alternatif bir platform iptv ve film dizi  ↓
