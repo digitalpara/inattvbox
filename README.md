@@ -4,24 +4,24 @@ inat tv box apk uygulamasi super Tv box ve android cep telefonlari icin super (m
 
 👉 İnat BOX Apk İndir alternatif bir platform iptv ve film dizi  ↓
 
-https://inattv19.cf/inat-box.html
+https://inattv23.cf/inat-box.html
 
 
 İnat BOX Yedek Link ↓
 
-https://inattv19.cf/inat-box-v10.apk
+https://inattv23.cf/inat-box-v11.apk
 
 -----
 
 👉 İnat TV PRO Apk İndir ↓
 
 
-https://inattv19.cf/inat-tv-pro.html
+https://inattv23.cf/inat-tv-pro.html
 
 
 İnat TV PRO Yedek Link ↓
 
-https://inattv19.cf/inat-tv-pro-v17.apk
+https://inattv23.cf/inat-tv-pro-v17.apk
 
 -----
 
